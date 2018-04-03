@@ -1,1 +1,1 @@
-# besthack
+# the best hackers
